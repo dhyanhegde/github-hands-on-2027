@@ -27,8 +27,8 @@ Topic:-
 GitHub Username:-
 
 Group 6
-Name:-
-Topic:-
-GitHub Username:-
+Name:-DHYAN
+Topic:-SMART GOALS
+GitHub Username:-dhyanhegde
 
 
